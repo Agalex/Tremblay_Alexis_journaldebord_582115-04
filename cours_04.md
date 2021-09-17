@@ -2,16 +2,16 @@
 ## Plan de présentation
 
 ### Présentation
-Parlez de vous. 
+mon nom est Alexis,  
 
 ### Intérêts dans le domaine
-Parlez de vos intérêts en multimédia. 
+Mes domaines qui m'intéressent dans le multimedia sont la vidéo, le montage vidéo et le mixage audio. J'aime créer du contenu et par le suite le modifier pour le rendre meilleur ou découvrir de nouvelles choses dans le multimedia pour rendre mes projets à la perfection.  
 
 ### Emplois qui vous intéressent
-Nommez deux emplois.
+le premier emploi qui m'intéresse est être monteur vidéo car depuis très longtemps, je fais le montage de mes projets d'écoles ou bien le mntage de mes projets personnels et je ne cesse d'avoir du plaisir en faisant cela. le second emploi est mixeur audio/ ingénieur son puisque je joue de la musique et je m'amuse èa faire des musqiues et les mixer et je prend beaucoup de plaisir à créer et à trouver les défauts et d'apprendre tout en ayant du plaisr.
 
 ### Identification
-Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
+ 
 
 ### Dans 5 ans
 Où vous voyez-vous dans 5 ans? 
