@@ -11,7 +11,7 @@ Mes domaines qui m'intéressent dans le multimedia sont la vidéo, le montage vi
 le premier emploi qui m'intéresse est être monteur vidéo car depuis très longtemps, je fais le montage de mes projets d'écoles ou bien le mntage de mes projets personnels et je ne cesse d'avoir du plaisir en faisant cela. le second emploi est mixeur audio/ ingénieur son puisque je joue de la musique et je m'amuse èa faire des musqiues et les mixer et je prend beaucoup de plaisir à créer et à trouver les défauts et d'apprendre tout en ayant du plaisr.
 
 ### Identification
- 
+un artiste que 
 
 ### Dans 5 ans
 Où vous voyez-vous dans 5 ans? 
