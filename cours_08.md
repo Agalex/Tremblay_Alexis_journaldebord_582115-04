@@ -6,10 +6,12 @@ Suggestions de sites où trouver des palettes de couleur:
 * [Coolors](https://coolors.co/)
 * [Adobe coulor](https://color.adobe.com/fr/create/color-wheel)
 
+https://coolors.co/0b090a-161a1d-660708-a4161a-ba181b-e5383b-b1a7a6-d3d3d3-f5f3f4-ffffff
+
 ## Choix d'un thème 
 Explorer les thèmes dans l'outil de présentation numérique de votre choix. Choississez 3 thèmes que vous aimez bien et notez les dans votre journal. Vous pouvez aussi insérer des images de ces thèmes. 
 
 #### Outil de présentation:    
 Thème 1 | Thème 2 | Thème 3
 --| -- | --
-Nom du thème  | Nom du thème | Nom du thème 
+musique | vidéo | jeux vidéos
