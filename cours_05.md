@@ -8,4 +8,4 @@ J'ai été à l'aise à l'avant, plus qu'a l'habitude puisque je suis une person
 Trouver des images meilleurs pour mes diapositives car ils étaient un peu pixéliser et l'autres serait de donnée plus de détails pour que ma présentation dure plus longtemps.
 
 ### Présentation préférée
-
+J'ai bien aimé celle de laurie car elle était très à l'aise et on comprenais très bien se qu'elle disait.
