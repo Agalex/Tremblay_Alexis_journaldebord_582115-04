@@ -14,4 +14,4 @@ Explorer les thèmes dans l'outil de présentation numérique de votre choix. Ch
 #### Outil de présentation:    
 Thème 1 | Thème 2 | Thème 3
 --| -- | --
-musique | vidéo | jeux vidéos
+https://www.slidescarnival.com/dauphin-free-presentation-template/18044| https://www.slidescarnival.com/viola-free-presentation-template/414 | https://www.slidescarnival.com/eleanor-free-presentation-template/308
